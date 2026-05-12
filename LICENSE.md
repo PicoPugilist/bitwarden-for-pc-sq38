@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Bitwarden for PC | Bitwarden for Windows integration with elite Bitwarden for PC | Bitwarden for Windows Integration | tags + password-audit. Featuring tags and
 
 
 
